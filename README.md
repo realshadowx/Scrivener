@@ -1,5 +1,7 @@
 # Scrivener Coupon Code 2025 | 50% Off Student Discount 🔥
 
+Hello folks, Amir here.
+
 Scrivener is widely regarded as one of the best writing software programs available, offering a suite of powerful features that help you organize and structure your work.
 
 The good news is that you can now [save 50% with Scrivener discount codes](https://www.literatureandlatte.com/scrivener-affiliate.html?fpr=shadow)!
