@@ -6,7 +6,7 @@ Scrivener is widely regarded as one of the best writing software programs availa
 
 The good news is that you can now [save 50% with Scrivener discount codes](https://www.literatureandlatte.com/scrivener-affiliate.html?fpr=shadow)!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdUKLGfPzKl1FNxifSE8j0wncu0KwWkFOOJ0eztWAVEQ4T9j6J_Ef0In69eYPkcEjYw6o6QPcqJsYB4DbpUNR5ZFFHhoTZGZfEXCCfhzeYjZQCVS-Q5B_IcsjvB8PMk3VqwNRgyRA?key=NW2BH_1Tv3glpYVTPjzHYx-Q)](https://www.literatureandlatte.com/scrivener-affiliate.html?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/3d3e4bed-4238-405c-93ea-ca29f5dba8ca)](https://www.literatureandlatte.com/scrivener-affiliate.html?fpr=shadow)
 
 ## Top Scrivener Discount Codes
 
@@ -16,14 +16,14 @@ Here’s a collection of the best Scrivener discount codes currently available. 
 
 * Discount Details: Save 20% off your first purchase of Scrivener.
 * Applicable Products/Services: This code applies to both the Windows and Mac versions of Scrivener, as well as the iOS version.
-* Expiry Date: Valid until [Insert Date].
+* Expiry Date: Valid until 30/12/2025.
 * How to Use the Code: Enter the code at checkout to get 20% off your first Scrivener license.
 
 #### Discount Code: SCRIV50
 
 * Discount Details: Get 50% off Scrivener upgrades for existing users.
 * Applicable Products/Services: This code is for users who are upgrading from an older version of Scrivener to the latest version.
-* Expiry Date: Offer valid until [Insert Date].
+* Expiry Date: Offer valid until 30/12/2025.
 * How to Use the Code: Use this code at checkout when purchasing an upgrade to Scrivener to enjoy 50% off the regular price.
 
 #### Discount Code: FREEU20
@@ -37,10 +37,10 @@ Here’s a collection of the best Scrivener discount codes currently available. 
 
 * Discount Details: Get 30% off when purchasing Scrivener in a bundle with other writing tools.
 * Applicable Products/Services: This offer is for those buying Scrivener in combination with other literature or writing software tools, available through select bundle deals.
-* Expiry Date: Available until [Insert Date].
+* Expiry Date: Available until 30/12/2025.
 * How to Use the Code: Enter the code during checkout when purchasing a bundle to unlock 30% off the combined price.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdUKLGfPzKl1FNxifSE8j0wncu0KwWkFOOJ0eztWAVEQ4T9j6J_Ef0In69eYPkcEjYw6o6QPcqJsYB4DbpUNR5ZFFHhoTZGZfEXCCfhzeYjZQCVS-Q5B_IcsjvB8PMk3VqwNRgyRA?key=NW2BH_1Tv3glpYVTPjzHYx-Q)](https://www.literatureandlatte.com/scrivener-affiliate.html?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/3d3e4bed-4238-405c-93ea-ca29f5dba8ca)](https://www.literatureandlatte.com/scrivener-affiliate.html?fpr=shadow)
 
 ## How to Redeem Scrivener Discount Codes?
 
@@ -58,7 +58,7 @@ During the checkout process, look for the "Promo Code" field and type in your di
 4. Step 4: Confirm Your Discount
 After entering your code, your discount will be applied, and you’ll see your updated total. Review everything and proceed with your purchase.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdUKLGfPzKl1FNxifSE8j0wncu0KwWkFOOJ0eztWAVEQ4T9j6J_Ef0In69eYPkcEjYw6o6QPcqJsYB4DbpUNR5ZFFHhoTZGZfEXCCfhzeYjZQCVS-Q5B_IcsjvB8PMk3VqwNRgyRA?key=NW2BH_1Tv3glpYVTPjzHYx-Q)](https://www.literatureandlatte.com/scrivener-affiliate.html?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/3d3e4bed-4238-405c-93ea-ca29f5dba8ca)](https://www.literatureandlatte.com/scrivener-affiliate.html?fpr=shadow)
 
 ## Pricing Information & How Much You Can Save
 
